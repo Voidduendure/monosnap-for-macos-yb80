@@ -1,4 +1,4 @@
-
+Monosnap for macOS best Script: duplicate-finder & battery-health offers the most advanced Monosnap for macOS script, with duplicate-finder and battery-health. Ideal for macOS
 
 
 
